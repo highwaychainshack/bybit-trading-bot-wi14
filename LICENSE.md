@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated Trading Bot for bybit trading bot | price-monitoring & position-sizing, the #1 bybit trading bot. Includes price-monitoring and position-sizing
 
 
 
